@@ -1,0 +1,1 @@
+Yo me llamo Gonzalo soy un chico de 18 años y mis hobbies son jugar videojuegos,salir de fiesta y pasar tiempo con mi familia y mis aspiraciones son llegar a ser un un buen programador en una buena empresa.
